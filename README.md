@@ -12,7 +12,7 @@
 ## 🔥 Quick Start
 1. **Read the full guide**:  
    → [https://sites.google.com/view/make-money-online-2025-real](https://sites.google.com/view/make-money-online-2025-real)  
-2. **Copy the template**: Fork this repo or download the [Google Docs template](https://docs.google.com/document/d/...)
+2. **Copy the template**: Fork this repo or download the [Google Docs template](https://docs.google.com)
 
 ---
 
@@ -36,7 +36,7 @@ Google's algorithm favors:
 This method:
 - Will get patched by Google **soon** (est. August 2025)
 - Requires **fast action**
-- Works best with [these keywords](https://sites.google.com/view/make-money-online-2025-real/keywords)
+- Works best with [these keywords](https://sites.google.com/view/make-money-online-2025-real)
 
 ---
 
